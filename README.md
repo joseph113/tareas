@@ -1,2 +1,1 @@
-# tareas
-tareas 1 y 2
+#  Jose.Guadalupe.Barrios.Sanchez.8*A
